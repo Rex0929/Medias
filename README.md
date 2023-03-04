@@ -167,3 +167,85 @@
 ***
 
 ## 周六
+
+
+- ### 斗罗大陆
+
+**第一季·更新至249集·全258集**
+
+**腾讯视频**: https://v.qq.com/x/cover/m441e3rjq9kwpsc.html
+
+**阿里云盘**: https://www.aliyundrive.com/s/zLgJUBZL2zL/folder/6173c24e27dd4909588e4106a7303d9f13691814
+
+***
+
+- ### 冰火魔厨
+
+**第一季·更新至67集·全104集**
+
+**优酷视频**: https://list.youku.com/show/id_dbbf54bdee9c4c5bbbd7
+
+**阿里云盘**: https://www.aliyundrive.com/s/NJHBmRUtQpb/folder/638ad3aaabd5f0410ffb4610a07e1db7ebc09763
+
+***
+
+- ### 三体
+
+**第一季·更新至12集·全集**
+
+**哔哩哔哩**: https://www.bilibili.com/bangumi/media/md4315402
+
+**阿里云盘**: https://www.aliyundrive.com/s/AiMjuF6hJQS/folder/6393f39105818172926e4d4a9e53a3b095380804
+
+***
+
+- ### 神澜奇域无双珠
+
+**第一季·更新至24集·全45集**
+
+**爱奇艺**: https://www.iqiyi.com/a_xgzhhxd7ot.html
+
+**阿里云盘**: https://www.aliyundrive.com/s/h173DaRSwT6/folder/62db6b1dc631b3a3c4bd4c11b7c6535a61700ec4
+
+***
+
+- ### 名侦探柯南
+
+**第一季·更新至1075集·全*集**
+
+
+**银色子弹字幕组**: https://www.sbsub.com/data/
+
+***
+
+## 周日 
+
+- ### 斗破苍穹
+
+**第五季·更新至33集·全52集**
+
+**腾讯视频**: https://v.qq.com/x/cover/mzc0020027yzd9e.html
+
+**阿里云盘**: https://www.aliyundrive.com/s/xdnSuo7hMDz/folder/6290646eb4d4092d22704bfda5f19de447c3db68
+
+***
+
+- ### 虚构推理
+
+**第二季·更新至20集·全24集**
+
+**BiliBiliTV**: https://www.bilibili.tv/en/play/2073886
+
+**漫貓字幕社**: https://share.dmhy.org/topics/list?keyword=%E8%99%9A%E6%9E%84%E6%8E%A8%E7%90%86
+
+***
+
+- ### 致不灭的你
+
+**第二季·更新至18集·全20集**
+
+**YouTube**: https://www.youtube.com/watch?v=mmEtdR7gyuY
+
+**Lilith-Raws**: https://share.dmhy.org/topics/list?keyword=%E7%B5%A6%E4%B8%8D%E6%BB%85%E7%9A%84%E4%BD%A0&sort_id=0&team_id=803&order=date-desc
+
+***
